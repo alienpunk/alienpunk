@@ -1,8 +1,10 @@
-<img src="https://cdn.phototourl.com/member/2026-08-29-8da2cc3c-4e43-4fca-8a44-4a89eed04348.png" alt="cloud" width="1000">
+ $${\color{green}
+ (⁠ ⁠╹⁠▽⁠╹⁠ ⁠).ᐟ.ᐟ.ᐟ}$$
 
 $${\color{green}"you \space can \space fly \space even \space higher."}$$
 
 ![](https://cdn.phototourl.com/free/2026-08-29-6073b21e-4520-4441-b810-575820bf31a3.png)
+
 ㅤㅤㅤㅤㅤㅤ
 ![](https://komarev.com/ghpvc/?username=alienpunk&color=brightgreen&abbreviation=true&style=flat-square&label=number+of+nyummies)
 
@@ -11,6 +13,6 @@ ${\color{brightgreen}"somebody \space whose \space even \space better}$ <img src
 
 $${\color{brightgreen}will \space come \space and \space find \space you."}$$
 
-![](https://cdn.phototourl.com/free/2026-08-29-f04c504e-5150-4632-93d6-9aae07150204.png)
+![](https://cdn.phototourl.com/member/2026-08-29-2cb3b36d-fae1-4149-86f4-698de229f5f1.png)
 
  $${\color{green}(⁠≧⁠▽⁠≦⁠)}$$
