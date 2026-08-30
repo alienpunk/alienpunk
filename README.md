@@ -8,4 +8,6 @@
 
 $${\color{red}**.𖥔 ݁ ˖ ᯓ★**}$$
 
+![](https://cdn.phototourl.com/member/2026-08-30-4ef9e06c-508b-4c03-912d-7e4593d65bb2.png)
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawp](https://alinompunk.straw.page)
