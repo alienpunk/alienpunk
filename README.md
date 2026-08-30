@@ -7,3 +7,5 @@
  ![](https://cdn.phototourl.com/member/2026-08-30-990509b6-f564-491c-ac96-b5396db415c2.png)
 
 $${\color{red}**.𖥔 ݁ ˖ ᯓ★**}$$
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawp](https://alinompunk.straw.page)
