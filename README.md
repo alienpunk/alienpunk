@@ -5,3 +5,5 @@
 ![](https://komarev.com/ghpvc/?username=alienpunk&color=brightgreen&abbreviation=true&style=flat-square&label=number+of+nyummies)
 
  ![](https://cdn.phototourl.com/member/2026-08-30-990509b6-f564-491c-ac96-b5396db415c2.png)
+
+$${\color{red}**.𖥔 ݁ ˖ ᯓ★**}$$
